@@ -1,0 +1,1 @@
+- [Choosing the Right Azure Certification Path for Your Career Goals](https://youtu.be/G6c99lwOfxQ)
